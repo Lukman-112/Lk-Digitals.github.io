@@ -1,2 +1,2 @@
-# Lk-Digitals.github.io
+# Lk-digitals.github.io
 Digital Agency
