@@ -1,2 +1,2 @@
 # Lk-digitals.github.io
-Digital Agency
+Digital Agency for Branding, Marketing & Sales
